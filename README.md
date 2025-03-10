@@ -1,1 +1,1 @@
-Learning. Adapting. Evolving. 
+Learning. Adapting. Evolving. xD
